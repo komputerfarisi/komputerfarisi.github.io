@@ -1,0 +1,1 @@
+# komputerfarisi.github.io
